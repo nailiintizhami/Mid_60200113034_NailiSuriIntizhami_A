@@ -1,0 +1,2 @@
+# Mid_60200113034_NailiSuriIntizhami_A
+tugas mid
